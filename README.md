@@ -1,1 +1,1 @@
-YSE Ragi
+YSE
